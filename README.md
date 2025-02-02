@@ -1,4 +1,4 @@
-- 👋 https://www.tiktok.com/@eazy_3s/video/7308107633712467232?q=boo%20boo%20boo%20boom&t=1738464428061
+- 👋 https://www.tiktok.com/@musicmediaco/video/7343777180360379690
 - 📫 Disc : n1cko
 
 
